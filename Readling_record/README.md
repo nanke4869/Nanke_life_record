@@ -1,5 +1,3 @@
-[TOC]
-
 # Reading List
 
 ## 2021年阅读书单
